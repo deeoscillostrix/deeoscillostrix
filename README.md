@@ -1,7 +1,7 @@
 # Hi, I'm Oscillo (@deeoscillostrix)! 👋🏻
 
 - An aspiring teacher's alter ego, to say the least! 🦉
-- Currently grad stew toiling in grad school 📚
+- Just finished grad school, no longer grad stew! 📚
 - Interested in learning something new! Hmu if you have anything interesting you'd like me to be a part of! ^v^
 
 - 📫 How to reach me: DM me over on Instagram or Threads! Email to prepare soon!
